@@ -4,3 +4,4 @@ I'm Arisha. Well..
 - Well, well, well, well.. To tell you something..
 - Stand with Uk.....
 - And one more thing I'd like to tell you..
+- Buy AI..
