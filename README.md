@@ -5,3 +5,4 @@ I'm Arisha. Well..
 - Stand with Uk.....
 - And one more thing I'd like to tell you..
 - Buy celeb-memes)) Actually I'm just kidding..
+- Buy AI-agents..
